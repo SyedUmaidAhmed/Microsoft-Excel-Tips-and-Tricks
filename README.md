@@ -6,3 +6,7 @@ The course would be of great use for the students and professionals working in A
 All the lectures are uploaded on YouTube. Also the lecture content and practice files can bo found at my Github Profile.
 
 
+The playlists of the YouTube Lectures can be accessed here:
+
+https://www.youtube.com/playlist?list=PLQNoF__3fxV7NlH6Esw-WMNbXUV_oZLbl
+
